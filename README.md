@@ -1,16 +1,22 @@
-### Hi there 👋
+## Salve!!🤡🦦
 
-<!--
-**titigrao/titigrao** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ Eu sou o Thyago "Titigas/Tigas", tenho 16 anos, tô no 2o Ano do EM.
+ 
+ Eu gosto de jogar;
 
-Here are some ideas to get you started:
+ Amo ouvir música;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ Gosto de ler;
+
+ Gosto de desenhar;
+
+ Gosto de sair com meus amigos.
+
+ ![](https://media.tenor.com/r5njqeos9y4AAAAC/monkey-singe.gif)
+
+  Tô sempre tentando dar e buscar o meu melhor.
+ 
+
+ 
+ 
+ 
