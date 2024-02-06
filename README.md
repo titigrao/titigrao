@@ -1,6 +1,6 @@
 ## Salve!!🤡🦦
 
- Eu sou o Thyago "Titigas/Tigas", tenho 16 anos, tô no 2o Ano do EM.
+ Eu sou o Thyago "Titigas", tenho 16 anos, tô no 3o Ano do EM.
  
  Eu gosto de jogar;
 
