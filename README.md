@@ -10,6 +10,8 @@
 
  Gosto de desenhar;
 
+ Odeio Cólica;
+
  Gosto de sair com meus amigos.
 
  ![](https://media.tenor.com/r5njqeos9y4AAAAC/monkey-singe.gif)
