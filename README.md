@@ -1,22 +1,6 @@
 ## Salve!!🤡🦦
 
- Eu sou o Thyago "Titigas", tenho 16 anos, tô no 3o Ano do EM.
- 
- Eu gosto de jogar;
-
- Amo ouvir música;
-
- Gosto de ler;
-
- Gosto de desenhar;
-
- Odeio Cólica;
-
- Amo Mulheres;
-
- Adoro K-POP;
-
- Gosto de sair com meus amigos.
+ E aí! Eu sou o Tigas, minha especialização é fazer designs horríveis e htmls piores
 
  ![](https://media.tenor.com/r5njqeos9y4AAAAC/monkey-singe.gif)
 
@@ -26,3 +10,4 @@
  
  
  
+tm
